@@ -1,1 +1,0 @@
-# Atividade01_PSI_Andreas
